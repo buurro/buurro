@@ -24,7 +24,7 @@ with open("template.md", "r") as f:
 readme = template.format(
     track_artist=track["artists"][0]["name"],
     track_name=track["name"],
-    track_url=track["href"],
+    track_url=track["external_urls"]["spotify"],
 )
 
 with open("README.md", "w") as f:
