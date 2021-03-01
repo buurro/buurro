@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://api.spotify.com/v1/tracks/1LbXpPv7ixhaOmh4DXtsyc)
+### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
 
-by Nhato
+by Silversun Pickups
