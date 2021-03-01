@@ -1,5 +1,6 @@
-.vscode/
-venv/
-__pycache__/
-
 .env
+.vscode/
+.cache/
+venv/
+node_modules/
+public/
