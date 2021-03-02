@@ -11,7 +11,7 @@ module.exports = {
       resolve: `gatsby-source-filesystem`,
       options: {
         name: `readme`,
-        path: `${__dirname}/README.md`,
+        path: `${__dirname}/../README.md`,
       },
     },
     `gatsby-transformer-remark`,

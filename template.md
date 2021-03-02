@@ -2,4 +2,4 @@
 
 ### [{track_name}]({track_url})
 
-by {track_artist}
+by {track_artists}
