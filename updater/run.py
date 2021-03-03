@@ -24,7 +24,7 @@ playlist = sp.playlist_tracks(
 added_today = []
 for i in playlist:
     added_at = datetime.strptime(i["added_at"], "%Y-%m-%dT%H:%M:%SZ")
-    if datetime.utcnow() - added_at < timedelta(hours=2):
+    if datetime.utcnow() - added_at < timedelta(days=1):
         added_today.append(i)
 
 if added_today:
