@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
+### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
 
-by Mr. Bill
+by Sakuraburst, Slyleaf, Leopold
