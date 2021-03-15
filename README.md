@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
+### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
 
-by Zedd, Matthew Koma
+by Ninomae Ina’nis
