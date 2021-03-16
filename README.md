@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Ninomae Ina’nis
+by ヨルシカ
