@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by deadmau5
+by ヨルシカ
