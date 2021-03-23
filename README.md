@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by Silversun Pickups
+by deadmau5
