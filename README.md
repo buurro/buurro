@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by ZUTOMAYO
+by Zedd, Ryan Tedder
