@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by Zedd, Ryan Tedder
+by deadmau5
