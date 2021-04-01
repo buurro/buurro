@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
 
-by Nhato
+by Ninomae Ina’nis
