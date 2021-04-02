@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by Ninomae Ina’nis
+by DJ Okawari
