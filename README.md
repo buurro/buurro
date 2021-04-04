@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Nhato
+by ヨルシカ
