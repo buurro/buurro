@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by Elliot Hsu
+by deadmau5
