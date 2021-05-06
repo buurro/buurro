@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
+### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
 
-by TOOL
+by Aimer
