@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
 
-by A Perfect Circle
+by Silversun Pickups
