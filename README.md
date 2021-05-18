@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
-by Silversun Pickups
+by ヨルシカ
