@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Zedd, Ryan Tedder
+by Mr. Bill
