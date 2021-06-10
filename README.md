@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Kohmi Hirose
+by Zedd, Ryan Tedder
