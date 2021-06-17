@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
+### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
 
-by ヨルシカ
+by Aimer
