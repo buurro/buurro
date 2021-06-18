@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by Aimer
+by Mr. Bill
