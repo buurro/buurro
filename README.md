@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by A Perfect Circle
+by Justice
