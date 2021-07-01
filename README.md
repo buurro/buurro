@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by Ado
+by 美波
