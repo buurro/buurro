@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Aimer
+by TOOL
