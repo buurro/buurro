@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
 by deadmau5
