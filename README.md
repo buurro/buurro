@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Ninomae Ina’nis
+by Mr. Bill
