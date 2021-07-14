@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by TOOL
+by ヨルシカ
