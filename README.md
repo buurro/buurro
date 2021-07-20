@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by Nhato
+by 美波
