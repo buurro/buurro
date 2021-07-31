@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Zedd, Ryan Tedder
+by Nhato
