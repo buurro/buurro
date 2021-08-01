@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by Nhato
+by Aimer
