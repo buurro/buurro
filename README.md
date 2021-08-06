@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by Nhato
+by ZUTOMAYO
