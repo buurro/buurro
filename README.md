@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
 
-by Mr. Bill
+by ヨルシカ
