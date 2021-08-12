@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by 美波
+by ヨルシカ
