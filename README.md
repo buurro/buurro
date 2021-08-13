@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by ヨルシカ
+by Aimer
