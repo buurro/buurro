@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by ヨルシカ
+by Zedd, Matthew Koma
