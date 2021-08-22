@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
 
-by ZUTOMAYO
+by Ninomae Ina’nis
