@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by Ninomae Ina’nis
+by 美波
