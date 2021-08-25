@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [Kanalumi](https://open.spotify.com/track/2MNHXl3V9GeHwJpzTsvVHi)
 
-by ヨルシカ
+by Ninomae Ina’nis
