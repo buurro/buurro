@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by ヨルシカ
+by 美波
