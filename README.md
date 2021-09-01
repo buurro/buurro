@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by ヨルシカ
+by Kohmi Hirose
