@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by Kohmi Hirose
+by ヨルシカ
