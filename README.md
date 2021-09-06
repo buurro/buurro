@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by Virtual Self
+by 美波
