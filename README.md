@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by Mr. Bill
+by Justice
