@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by Hisatomi, KIRA
+by ZUTOMAYO
