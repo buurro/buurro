@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by deadmau5
+by Virtual Self
