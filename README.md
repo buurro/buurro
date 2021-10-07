@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by Aimer
+by DJ Okawari
