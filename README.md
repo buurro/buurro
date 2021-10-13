@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by 大原ゆい子
+by Hisatomi, KIRA
