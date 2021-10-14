@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by Hisatomi, KIRA
+by deadmau5
