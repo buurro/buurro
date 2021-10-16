@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by Silversun Pickups
+by 稲葉曇
