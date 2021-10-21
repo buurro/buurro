@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by ヨルシカ
+by Rusko
