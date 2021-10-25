@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by 大原ゆい子
+by Aimer
