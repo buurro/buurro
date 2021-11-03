@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by TOOL
+by Aimer
