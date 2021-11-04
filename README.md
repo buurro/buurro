@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
 
-by Aimer
+by ヨルシカ
