@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by ヨルシカ
+by 大原ゆい子
