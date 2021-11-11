@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by ヨルシカ
+by Zedd, Matthew Koma
