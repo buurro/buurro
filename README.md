@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by 美波
+by ZUTOMAYO
