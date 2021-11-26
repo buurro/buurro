@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by Aimer
+by Zedd, Matthew Koma
