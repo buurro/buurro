@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by Virtual Self
+by 大原ゆい子
