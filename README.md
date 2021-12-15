@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
+### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
 
-by 大原ゆい子
+by Virtual Self
