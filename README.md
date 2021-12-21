@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by 美波
+by Kohmi Hirose
