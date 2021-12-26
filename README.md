@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Virtual Self
+by ヨルシカ
