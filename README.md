@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by ヨルシカ
+by Rusko
