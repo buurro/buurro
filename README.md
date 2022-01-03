@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [Xnor Xnor Xnor](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by 美波
+by Frums
