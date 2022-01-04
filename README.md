@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Xnor Xnor Xnor](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Frums
+by ヨルシカ
