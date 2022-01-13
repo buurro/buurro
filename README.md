@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
+### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
 
-by Elliot Hsu
+by 大原ゆい子
