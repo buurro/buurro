@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by Mr. Bill
+by deadmau5
