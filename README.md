@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
+### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
 
-by deadmau5
+by Massive Attack
