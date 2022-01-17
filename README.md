@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by Massive Attack
+by Zeds Dead
