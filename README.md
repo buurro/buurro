@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by 美波
+by Zedd, Matthew Koma
