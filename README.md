@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
 
-by Virtual Self
+by Massive Attack
