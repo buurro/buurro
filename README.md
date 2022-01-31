@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
 
-by Massive Attack
+by Moderat
