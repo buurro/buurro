@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by Moderat
+by meiyo
