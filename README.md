@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
+### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
 
-by Zedd, Matthew Koma
+by Civil Twilight
