@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [Memories](https://open.spotify.com/track/1nDkhgWbUUKbxR4UuZzt8D)
 
-by Justice
+by Rem Divide
