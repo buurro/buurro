@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Memories](https://open.spotify.com/track/1nDkhgWbUUKbxR4UuZzt8D)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Rem Divide
+by Kuhakugokko
