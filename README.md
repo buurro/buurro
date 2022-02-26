@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by Radiohead
+by 大原ゆい子
