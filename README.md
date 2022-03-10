@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by TOOL
+by deadmau5
