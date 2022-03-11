@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by deadmau5
+by Zeds Dead
