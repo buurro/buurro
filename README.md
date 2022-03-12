@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Zeds Dead
+by TOOL
