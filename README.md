@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by 大原ゆい子
+by 稲葉曇
