@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
 
-by 稲葉曇
+by ヨルシカ
