@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Linkin Park, Rakim
+by Nhato
