@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by YOASOBI
+by Hisatomi, KIRA
