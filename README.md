@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by A Perfect Circle
+by 美波
