@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by 美波
+by EGOIST
