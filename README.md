@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
 
-by Nhato
+by Massive Attack
