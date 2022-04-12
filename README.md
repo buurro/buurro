@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by Aimer
+by Kohmi Hirose
