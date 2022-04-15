@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Virtual Self
+by Aimer
