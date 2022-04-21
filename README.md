@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Radiohead
+by Aimer
