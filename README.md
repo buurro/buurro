@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by Aimer
+by Zeds Dead
