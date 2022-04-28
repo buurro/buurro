@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Kohmi Hirose
+by ヨルシカ
