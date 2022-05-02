@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by Aimer
+by Rusko
