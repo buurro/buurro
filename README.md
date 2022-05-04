@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
 
-by Virtual Self
+by Moderat
