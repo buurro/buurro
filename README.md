@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by Moderat
+by ZUTOMAYO
