@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by ZUTOMAYO
+by deadmau5
