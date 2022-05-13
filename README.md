@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
+### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
 
-by Reol
+by YOASOBI
