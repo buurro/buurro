@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by ヨルシカ
+by 稲葉曇
