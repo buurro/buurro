@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Civil Twilight
+by Hisatomi, KIRA
