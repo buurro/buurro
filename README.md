@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by Hisatomi, KIRA
+by THE SIXTH LIE
