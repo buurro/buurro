@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
 
-by ヨルシカ
+by FantasticYouth
