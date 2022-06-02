@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by FantasticYouth
+by DJ Okawari
