@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Aimer
+by Zedd, Ryan Tedder
