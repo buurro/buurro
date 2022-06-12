@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
+### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
 
-by nowisee
+by Ado
