@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by Ado
+by Zedd, Matthew Koma
