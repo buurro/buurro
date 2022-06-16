@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
+### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
 
-by DAZBEE
+by Aimer
