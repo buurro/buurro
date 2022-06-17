@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Aimer
+by ヨルシカ
