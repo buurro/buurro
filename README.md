@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
+### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
 
-by Rusko
+by Sakuraburst, Slyleaf, Leopold
