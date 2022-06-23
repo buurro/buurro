@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Ado
+by Mr. Bill
