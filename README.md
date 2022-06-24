@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
 
-by Mr. Bill
+by Silversun Pickups
