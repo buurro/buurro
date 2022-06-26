@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by Aiobahn, KOCHO
+by EGOIST
