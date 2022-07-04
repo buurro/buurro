@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by Nhato
+by 美波
