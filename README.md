@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Creepy Nuts
+by Nhato
