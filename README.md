@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Zedd, Ryan Tedder
+by Ado, Giga
