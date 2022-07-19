@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
-by Ado, Giga
+by ヨルシカ
