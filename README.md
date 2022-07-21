@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by ヨルシカ
+by Aimer
