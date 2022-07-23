@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Ado, Giga
+by Nhato
