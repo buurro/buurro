@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
 
-by 美波
+by 大原ゆい子
