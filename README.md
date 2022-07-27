@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by 大原ゆい子
+by A Perfect Circle
