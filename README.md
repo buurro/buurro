@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
 
-by Ado, Giga
+by Reol
