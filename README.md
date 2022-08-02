@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
+### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
 
-by Reol
+by 大原ゆい子
