@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Mr. Bill
+by Aimer
