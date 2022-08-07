@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
 
-by deadmau5
+by Reol
