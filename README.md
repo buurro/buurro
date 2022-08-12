@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
+### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
 
 by Ado
