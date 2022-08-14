@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by ヨルシカ
+by Aimer
