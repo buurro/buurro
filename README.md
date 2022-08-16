@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by Ado, Giga
+by Zeds Dead
