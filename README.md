@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by Kuhakugokko
+by Rusko
