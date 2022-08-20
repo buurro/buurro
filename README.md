@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by deadmau5
+by meiyo
