@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by meiyo
+by Kohmi Hirose
