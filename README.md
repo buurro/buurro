@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Kohmi Hirose
+by Mr. Bill
