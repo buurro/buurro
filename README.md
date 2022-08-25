@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Justice
+by ヨルシカ
