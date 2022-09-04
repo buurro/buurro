@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by DJ Okawari
+by 大原ゆい子
