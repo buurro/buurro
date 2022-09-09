@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
+### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
 
-by EGOIST
+by Reol
