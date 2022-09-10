@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Reol
+by TOOL
