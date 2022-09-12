@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by Sakuraburst, Slyleaf, Leopold
+by Creepy Nuts
