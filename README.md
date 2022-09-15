@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
+### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
 
-by 大原ゆい子
+by TOOL
