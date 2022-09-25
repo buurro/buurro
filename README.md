@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Kohmi Hirose
+by Aimer
