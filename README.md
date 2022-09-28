@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by FantasticYouth
+by Zedd, Matthew Koma
