@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by meiyo
+by Zeds Dead
