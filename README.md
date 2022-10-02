@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
 
-by Zeds Dead
+by Aimer
