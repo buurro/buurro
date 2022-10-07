@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Ado
+by Zedd, Ryan Tedder
