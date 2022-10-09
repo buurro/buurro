@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Zeds Dead
+by Kuhakugokko
