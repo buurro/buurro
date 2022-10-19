@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by 理芽
+by Mr. Bill
