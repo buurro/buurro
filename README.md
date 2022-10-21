@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Ryokuoushoku Shakai
+by Mr. Bill
