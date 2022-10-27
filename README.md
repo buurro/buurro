@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by YOASOBI
+by nowisee
