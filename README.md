@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by nowisee
+by deadmau5
