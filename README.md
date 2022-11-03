@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by Creepy Nuts
+by nowisee
