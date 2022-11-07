@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
 
-by Silversun Pickups
+by nowisee
