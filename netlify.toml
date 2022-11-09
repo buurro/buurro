@@ -1,5 +1,0 @@
-[build]
-  base = "gatsby/"
-  publish = "public/"
-  command = "yarn build"
-  ignore = "git diff --quiet HEAD^ HEAD ./ ../README.md"
