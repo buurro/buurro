@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
+### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
 
-by Zedd, Matthew Koma
+by DAZBEE
