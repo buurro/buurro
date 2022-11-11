@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
+### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
 
-by DAZBEE
+by TOOL
