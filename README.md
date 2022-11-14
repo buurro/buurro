@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
 
-by Frums
+by FantasticYouth
