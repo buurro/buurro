@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Zedd, Ryan Tedder
+by TOOL
