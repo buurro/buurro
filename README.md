@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
 
-by Aimer
+by Elliot Hsu
