@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
+### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
 
-by meiyo
+by 大原ゆい子
