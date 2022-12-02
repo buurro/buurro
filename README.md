@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [旅人の唄](https://open.spotify.com/track/4qQTqlOWCftZYufh9uUzO9)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by 大原ゆい子
+by nowisee
