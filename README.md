@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
 
-by 美波
+by Elliot Hsu
