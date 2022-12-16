@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by Sakuraburst, Slyleaf, Leopold
+by Kohmi Hirose
