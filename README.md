@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
 
-by Nhato
+by Moderat
