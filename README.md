@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by Moderat
+by Midnight Grand Orchestra
