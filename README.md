@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by 稲葉曇
+by Justice
