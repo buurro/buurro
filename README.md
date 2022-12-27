@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
 
-by Justice
+by Aimer
