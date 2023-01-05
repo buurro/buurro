@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by A Perfect Circle
+by Radiohead
