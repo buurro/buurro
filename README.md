@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by A Perfect Circle
+by 大原ゆい子
