@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by Rusko
+by Justice
