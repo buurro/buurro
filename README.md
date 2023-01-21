@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by millstones
+by Ado, Giga
