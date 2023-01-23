@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by Ryokuoushoku Shakai
+by ヨルシカ
