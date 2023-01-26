@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by THE SIXTH LIE
+by Frums
