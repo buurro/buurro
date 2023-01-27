@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by Frums
+by Linkin Park, Rakim
