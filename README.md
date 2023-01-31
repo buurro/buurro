@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
+### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
 
-by 結束バンド
+by ヨルシカ
