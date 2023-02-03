@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
 
-by 稲葉曇
+by 美波
