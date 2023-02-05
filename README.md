@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
+### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
 
-by EGOIST
+by Ado
