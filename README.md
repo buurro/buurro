@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
+### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
 
-by 大原ゆい子
+by DAZBEE
