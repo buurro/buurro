@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by DAZBEE
+by Mr. Bill
