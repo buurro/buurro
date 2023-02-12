@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
+### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
 
-by EGOIST
+by DAZBEE
