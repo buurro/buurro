@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
+### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
 
-by deadmau5
+by TOOL
