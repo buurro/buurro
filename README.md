@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Camellia, Ninomae Ina'Nis
+by TOOL
