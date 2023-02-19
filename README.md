@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by DAZBEE
+by Wilkinson, iiola
