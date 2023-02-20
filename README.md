@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by Wilkinson, iiola
+by THE SIXTH LIE
