@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
 by TOOL
