@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
 
-by YOASOBI
+by TOOL
