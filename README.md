@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by ヨルシカ
+by Midnight Grand Orchestra
