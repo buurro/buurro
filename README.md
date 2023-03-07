@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by 美波
+by Wilkinson, iiola
