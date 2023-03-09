@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by Nhato
+by EGOIST
