@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
+### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
 
-by Ryokuoushoku Shakai
+by TOOL
