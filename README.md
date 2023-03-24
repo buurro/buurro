@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by Virtual Self
+by Aimer
