@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by Midnight Grand Orchestra
+by The Flashbulb
