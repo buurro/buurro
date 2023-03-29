@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
+### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
 
-by The Flashbulb
+by Nhato
