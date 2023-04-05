@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by TOOL
+by Mr. Bill
