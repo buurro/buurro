@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Mr. Bill
+by Nhato
