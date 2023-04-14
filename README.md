@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by 美波
+by deadmau5
