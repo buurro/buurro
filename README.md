@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by TOOL
+by deadmau5
