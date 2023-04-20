@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
 
-by deadmau5
+by Virtual Self
