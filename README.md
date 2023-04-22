@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by deadmau5
+by 美波
