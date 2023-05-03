@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by TOOL
+by Hisatomi, KIRA
