@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
 
-by Hisatomi, KIRA
+by 美波
