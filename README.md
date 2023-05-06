@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
+### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
 
-by MAN WITH A MISSION
+by 結束バンド
