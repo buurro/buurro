@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by 理芽
+by Wilkinson, iiola
