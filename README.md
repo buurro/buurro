@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Wilkinson, iiola
+by Ado, Giga
