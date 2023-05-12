@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Chase & Status, Tom Grennan
+by Ado, Giga
