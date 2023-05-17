@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
 
-by Wilkinson, iiola
+by nowisee
