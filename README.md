@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by THE SIXTH LIE
+by Midnight Grand Orchestra
