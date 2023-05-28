@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by Camellia, Ninomae Ina'Nis
+by Linkin Park, Rakim
