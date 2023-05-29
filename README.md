@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by Linkin Park, Rakim
+by 大原ゆい子
