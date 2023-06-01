@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by Mr. Bill
+by QUEEN BEE
