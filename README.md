@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by Joni Void
+by THE SIXTH LIE
