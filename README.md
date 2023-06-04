@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by THE SIXTH LIE
+by Aimer
