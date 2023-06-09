@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by Aiobahn, KOCHO
+by Nothing But Thieves
