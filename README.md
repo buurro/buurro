@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by Nothing But Thieves
+by ヨルシカ
