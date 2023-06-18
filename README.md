@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Creepy Nuts
+by Aimer
