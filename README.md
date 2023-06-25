@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Royalston
+by TOOL
