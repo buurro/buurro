@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by TOOL
+by Virtual Self
