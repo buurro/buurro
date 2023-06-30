@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by Nothing But Thieves
+by Royalston
