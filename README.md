@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
 
-by Royalston
+by TOOL
