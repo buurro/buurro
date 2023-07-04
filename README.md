@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by BiSH
+by Nothing But Thieves
