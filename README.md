@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
+### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
 
-by MAN WITH A MISSION
+by Nhato
