@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by Nhato
+by 大原ゆい子
