@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by 大原ゆい子
+by Zedd, Ryan Tedder
