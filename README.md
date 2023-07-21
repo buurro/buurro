@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
 
-by Zedd, Ryan Tedder
+by Ado
