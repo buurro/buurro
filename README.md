@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by TOOL
+by ヨルシカ
