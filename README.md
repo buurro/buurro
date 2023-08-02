@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by Midnight Grand Orchestra
+by 美波
