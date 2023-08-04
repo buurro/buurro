@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Guiano
+by Kuhakugokko
