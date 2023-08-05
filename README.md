@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
+### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
 
-by Kuhakugokko
+by 大原ゆい子
