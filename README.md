@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [目覚めの唄](https://open.spotify.com/track/5gS3z8DB5L13aAA6swS2tU)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by 大原ゆい子
+by Royalston
