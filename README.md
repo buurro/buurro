@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by The Flashbulb
+by THE SIXTH LIE
