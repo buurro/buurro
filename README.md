@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
 
-by "Weird Al" Yankovic
+by Ado
