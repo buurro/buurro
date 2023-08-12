@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Ado
+by Aimer
