@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by Aiobahn, KOCHO
+by Creepy Nuts
