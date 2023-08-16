@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
 
-by Creepy Nuts
+by Elliot Hsu
