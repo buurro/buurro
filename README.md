@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by Nothing But Thieves
+by Radiohead
