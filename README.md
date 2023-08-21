@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by Radiohead
+by Virtual Self
