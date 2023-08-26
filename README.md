@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by Frums
+by Virtual Self
