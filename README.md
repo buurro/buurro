@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Aimer
+by TOOL
