@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
+### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
 
-by TOOL
+by 理芽
