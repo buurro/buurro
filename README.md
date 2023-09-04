@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
 
-by ヨルシカ
+by Ado
