@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
+### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
 
-by Ado
+by Guiano
