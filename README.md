@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
 
-by Aimer
+by nowisee
