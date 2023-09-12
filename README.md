@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
 
-by Wilkinson, iiola
+by 結束バンド
