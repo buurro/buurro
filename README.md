@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by 結束バンド
+by 美波
