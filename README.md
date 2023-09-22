@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Nanahoshi Orchestra
+by TOOL
