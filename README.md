@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
+### [Supersonic (my existence)](https://open.spotify.com/track/3qL63QvSTHvC4Uw8eEhz4z)
 
-by TOOL
+by Skrillex, Noisia, josh pan, Dylan Brady
