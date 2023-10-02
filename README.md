@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
 
-by 稲葉曇
+by Virtual Self
