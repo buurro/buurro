@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by Virtual Self
+by Royalston
