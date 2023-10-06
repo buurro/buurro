@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by Camellia, Ninomae Ina'Nis
+by A Perfect Circle
