@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by A Perfect Circle
+by Hisatomi, KIRA
