@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by Aiobahn, KOCHO
+by Rusko
