@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
+### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
 
-by QUEEN BEE
+by Sakuraburst, Slyleaf, Leopold
