@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
+### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
 
-by Sakuraburst, Slyleaf, Leopold
+by Silversun Pickups
