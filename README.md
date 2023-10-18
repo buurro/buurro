@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
 
-by YOASOBI
+by Camellia, Ninomae Ina'Nis
