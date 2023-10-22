@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
+### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
 
-by Rusko
+by nowisee
