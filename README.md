@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by Ryokuoushoku Shakai
+by THE SIXTH LIE
