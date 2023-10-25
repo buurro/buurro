@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by THE SIXTH LIE
+by Kuhakugokko
