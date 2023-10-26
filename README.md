@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by Kuhakugokko
+by Nothing But Thieves
