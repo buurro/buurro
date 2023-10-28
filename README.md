@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by ヨルシカ
+by Nhato
