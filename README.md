@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
 
-by Nhato
+by millstones
