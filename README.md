@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
 
-by ヨルシカ
+by Virtual Self
