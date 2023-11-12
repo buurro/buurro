@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
 
-by Nanahoshi Orchestra
+by Elliot Hsu
