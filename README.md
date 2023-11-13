@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by Elliot Hsu
+by Zeds Dead
