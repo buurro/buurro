@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by Zeds Dead
+by ZUTOMAYO
