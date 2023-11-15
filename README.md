@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
 
-by ZUTOMAYO
+by nowisee
