@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
 
-by YOASOBI
+by 美波
