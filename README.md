@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by 美波
+by Wilkinson, iiola
