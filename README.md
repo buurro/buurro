@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Supersonic (my existence)](https://open.spotify.com/track/3qL63QvSTHvC4Uw8eEhz4z)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by Skrillex, Noisia, josh pan, Dylan Brady
+by Royalston
