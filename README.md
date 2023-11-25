@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
 
-by Aimer
+by millstones
