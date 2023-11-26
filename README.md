@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by millstones
+by MAN WITH A MISSION
