@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by MAN WITH A MISSION
+by ヨルシカ
