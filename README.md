@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
 
-by Nanahoshi Orchestra
+by Aimer
