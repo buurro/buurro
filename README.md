@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Aimer
+by ヨルシカ
