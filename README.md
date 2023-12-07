@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
 
-by Royalston
+by Joni Void
