@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by Joni Void
+by "Weird Al" Yankovic
