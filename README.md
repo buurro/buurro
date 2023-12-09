@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
 
-by "Weird Al" Yankovic
+by nowisee
