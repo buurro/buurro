@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
+### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
 
-by nowisee
+by Ryokuoushoku Shakai
