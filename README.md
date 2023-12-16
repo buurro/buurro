@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [堕天](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by Creepy Nuts
+by Wilkinson, iiola
