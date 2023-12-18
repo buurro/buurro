@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
+### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
 
-by nowisee
+by Ryokuoushoku Shakai
