@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
+### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
 
-by Virtual Self
+by Chase & Status, Tom Grennan
