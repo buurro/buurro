@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by FantasticYouth
+by ZUTOMAYO
