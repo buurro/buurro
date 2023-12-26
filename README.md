@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by Aimer
+by deadmau5
