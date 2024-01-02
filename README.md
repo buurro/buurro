@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
-by DAZBEE
+by ヨルシカ
