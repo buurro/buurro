@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
 
-by Midnight Grand Orchestra
+by Sleeping Pola
