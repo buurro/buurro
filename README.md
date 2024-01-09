@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by Sleeping Pola
+by Royalston
