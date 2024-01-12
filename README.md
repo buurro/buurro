@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
+### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
 
-by Chase & Status, Tom Grennan
+by Guiano
