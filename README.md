@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by Aiobahn, KOCHO
+by Zedd, Matthew Koma
