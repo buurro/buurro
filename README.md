@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by TOOL
+by The Flashbulb
