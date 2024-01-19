@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by The Flashbulb
+by QUEEN BEE
