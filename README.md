@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
+### [what we did in the desert](https://open.spotify.com/track/48NL8GMxz08wkiGmGK6Wie)
 
-by DAZBEE
+by eightiesheadachetape
