@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
+### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
 
-by Ryokuoushoku Shakai
+by Civil Twilight
