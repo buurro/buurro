@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by millstones
+by Rusko
