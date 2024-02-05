@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
+### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
 
-by millstones
+by Utah Saints
