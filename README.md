@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by Aimer
+by Creepy Nuts
