@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by Midnight Grand Orchestra
+by Creepy Nuts
