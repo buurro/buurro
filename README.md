@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
+### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
 
-by MAN WITH A MISSION
+by Chase & Status, Clementine Douglas
