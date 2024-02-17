@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by Chase & Status, Clementine Douglas
+by Kx5, deadmau5, Kaskade, Hayla
