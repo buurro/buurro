@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
+### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Aimer
+by Hisatomi, KIRA
