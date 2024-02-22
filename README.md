@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
 
-by Hisatomi, KIRA
+by TAKU INOUE, Hoshimachi Suisei
