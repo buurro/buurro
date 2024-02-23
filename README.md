@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
+### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
 
-by TAKU INOUE, Hoshimachi Suisei
+by Reol
