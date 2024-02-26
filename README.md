@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
 
-by Massive Attack
+by The Streets, Chris Lorenzo
