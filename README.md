@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by The Streets, Chris Lorenzo
+by deadmau5
