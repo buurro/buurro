@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
 
-by Joni Void
+by Utah Saints
