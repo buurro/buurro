@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
 
-by ヨルシカ
+by Mefjus
