@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by Mefjus
+by Frums
