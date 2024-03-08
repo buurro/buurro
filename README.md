@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
 
-by Kx5, deadmau5, Kaskade, Hayla
+by Ado
