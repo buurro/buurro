@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by BiSH
+by Rusko
