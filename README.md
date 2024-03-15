@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by meiyo
+by Linkin Park, Rakim
