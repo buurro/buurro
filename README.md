@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Linkin Park, Rakim
+by Kuhakugokko
