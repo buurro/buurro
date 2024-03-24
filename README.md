@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by Aimer
+by EGOIST
