@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
 
-by TOOL
+by The Streets, Chris Lorenzo
