@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by The Streets, Chris Lorenzo
+by "Weird Al" Yankovic
