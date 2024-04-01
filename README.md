@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Civil Twilight
+by TOOL
