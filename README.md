@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
 
-by Joni Void
+by Ryokuoushoku Shakai
