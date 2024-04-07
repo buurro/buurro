@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
 
-by Fred again.., Baby Keem
+by millstones
