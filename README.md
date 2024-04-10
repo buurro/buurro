@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by Disclosure
+by Omri Smadar
