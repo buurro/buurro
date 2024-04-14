@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
 
-by TOOL
+by Fred again.., Baby Keem
