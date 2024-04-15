@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
 
-by Fred again.., Baby Keem
+by Sleeping Pola
