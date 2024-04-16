@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
+### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
 
-by Sleeping Pola
+by deadmau5, Rebūke
