@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
+### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
 
-by Omri Smadar
+by Nanahoshi Orchestra
