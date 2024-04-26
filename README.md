@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
 
-by Wilkinson, iiola
+by DAZBEE
