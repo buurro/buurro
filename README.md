@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Elliot Hsu
+by Kuhakugokko
