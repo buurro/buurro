@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ANGEL VOICES](https://open.spotify.com/track/69urju2iS7zKGTxNVLYt5D)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by Virtual Self
+by THE SIXTH LIE
