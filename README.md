@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by 美波
+by Omri Smadar
