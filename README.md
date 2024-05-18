@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
 
-by nowisee
+by Phantogram, Subtronics
