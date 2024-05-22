@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by Ado
+by Linkin Park, Rakim
