@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by BewhY
+by ヨルシカ
