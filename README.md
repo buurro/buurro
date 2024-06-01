@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by ヨルシカ
+by Rusko
