@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
+### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
 
-by Rusko
+by Phantogram, Subtronics
