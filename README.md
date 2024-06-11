@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
+### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
 
-by Sleeping Pola
+by Reol
