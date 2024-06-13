@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
 
-by nowisee
+by deadmau5, Rebūke
