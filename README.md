@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by TOOL
+by Mr. Bill
