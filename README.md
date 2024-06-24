@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Mr. Bill
+by Kuhakugokko
