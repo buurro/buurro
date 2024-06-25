@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by Kuhakugokko
+by Mr. Bill
