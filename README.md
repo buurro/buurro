@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by 結束バンド
+by QUEEN BEE
