@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by Mr. Bill
+by Aimer
