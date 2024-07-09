@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by Midnight Grand Orchestra
+by nowisee
