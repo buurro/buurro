@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by nowisee
+by The Flashbulb
