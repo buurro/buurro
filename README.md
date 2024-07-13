@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
+### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
 
-by Camellia, Ninomae Ina'Nis
+by Mefjus
