@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by Mefjus
+by "Weird Al" Yankovic
