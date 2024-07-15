@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by "Weird Al" Yankovic
+by ヨルシカ
