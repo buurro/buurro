@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by nowisee
+by Linkin Park, Rakim
