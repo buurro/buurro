@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
 
-by ヨルシカ
+by Aiobahn, KOCHO
