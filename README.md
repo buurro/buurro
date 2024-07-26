@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Nanahoshi Orchestra
+by ヨルシカ
