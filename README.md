@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by FantasticYouth
+by 稲葉曇
