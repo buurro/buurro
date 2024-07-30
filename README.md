@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by deadmau5
+by Ado, Giga
