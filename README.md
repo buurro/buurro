@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by THE SIXTH LIE
+by ZUTOMAYO
