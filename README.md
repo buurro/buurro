@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
+### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
 
-by BiSH
+by Ryokuoushoku Shakai
