@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by Guiano
+by 稲葉曇
