@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
 
-by 稲葉曇
+by Chase & Status, Tom Grennan
