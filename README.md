@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by nowisee
+by 美波
