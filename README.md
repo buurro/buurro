@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by 美波
+by Creepy Nuts
