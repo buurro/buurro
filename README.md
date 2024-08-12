@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
 
-by Creepy Nuts
+by Disclosure
