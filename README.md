@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by Disclosure
+by deadmau5
