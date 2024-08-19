@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Disclosure
+by Aimer
