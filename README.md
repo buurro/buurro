@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [DROP](https://open.spotify.com/track/5DvUv3UT3KcH3IhNOTfiPF)
+### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
 
-by 美波
+by BiSH
