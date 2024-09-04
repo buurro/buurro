@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by BiSH
+by 美波
