@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
 
-by Creepy Nuts
+by nowisee
