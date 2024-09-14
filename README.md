@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Supersonic (my existence)](https://open.spotify.com/track/3qL63QvSTHvC4Uw8eEhz4z)
+### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
 
-by Skrillex, Noisia, josh pan, Dylan Brady
+by deadmau5
