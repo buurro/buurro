@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Chase & Status, Tom Grennan
+by TOOL
