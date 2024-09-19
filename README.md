@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
+### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
 
-by Ado
+by Sakuraburst, Slyleaf, Leopold
