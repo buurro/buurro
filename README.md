@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
 
-by Silversun Pickups
+by Utah Saints
