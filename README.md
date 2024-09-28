@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
+### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
 
-by Mr. Bill
+by Aimer
