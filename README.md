@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
+### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
 
-by Phantogram, Subtronics
+by ODESZA, Ólafur Arnalds
