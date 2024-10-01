@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by ODESZA, Ólafur Arnalds
+by Radiohead
