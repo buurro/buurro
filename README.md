@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by Fred again.., Baby Keem
+by Kx5, deadmau5, Kaskade, HAYLA
