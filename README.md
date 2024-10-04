@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by Kx5, deadmau5, Kaskade, HAYLA
+by Omri Smadar
