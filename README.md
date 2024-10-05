@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by Omri Smadar
+by Virtual Self
