@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
+### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by DJ Okawari
+by Creepy Nuts
