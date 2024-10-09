@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [堕天](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
 
 by Creepy Nuts
