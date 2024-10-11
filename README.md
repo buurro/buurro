@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
+### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
 
-by DJ Okawari
+by The Streets, Chris Lorenzo
