@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
+### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
 
-by The Flashbulb
+by TAKU INOUE, Hoshimachi Suisei
