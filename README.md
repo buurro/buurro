@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
+### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
 
-by Chase & Status, Tom Grennan
+by TOOL
