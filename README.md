@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
+### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
 
-by Sakuraburst, Slyleaf, Leopold
+by The Streets, Chris Lorenzo
