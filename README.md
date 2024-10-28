@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Take Me As I Am](https://open.spotify.com/track/5UjccMIJkNhont0TGSU0iD)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by The Streets, Chris Lorenzo
+by Hisatomi, KIRA
