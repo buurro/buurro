@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
 
-by Wilkinson, iiola
+by YOASOBI
