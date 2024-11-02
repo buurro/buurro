@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by Utah Saints
+by ヨルシカ
