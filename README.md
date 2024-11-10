@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by Nhato
+by Linkin Park, Rakim
