@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
+### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
 
-by Linkin Park, Rakim
+by Joni Void
