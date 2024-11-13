@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by ZUTOMAYO
+by DJ Okawari
