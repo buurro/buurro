@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by Massive Attack, Hope Sandoval
+by Midnight Grand Orchestra
