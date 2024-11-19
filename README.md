@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by TOOL
+by Zeds Dead
