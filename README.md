@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
+### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
 
-by Kohmi Hirose
+by BiSH
