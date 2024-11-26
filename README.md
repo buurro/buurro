@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by BiSH
+by "Weird Al" Yankovic
