@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
 
-by ヨルシカ
+by Fred again.., Baby Keem
