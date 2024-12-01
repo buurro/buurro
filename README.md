@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
-by Fred again.., Baby Keem
+by ヨルシカ
