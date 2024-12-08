@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
 
-by Ado, Giga
+by TOOL
