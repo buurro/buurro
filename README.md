@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by TOOL
+by Frums
