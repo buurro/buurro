@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
+### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
 
-by Chase & Status, Clementine Douglas
+by ODESZA, Ólafur Arnalds
