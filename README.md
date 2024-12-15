@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by ODESZA, Ólafur Arnalds
+by Zedd, Matthew Koma
