@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by Royalston
+by Omri Smadar
