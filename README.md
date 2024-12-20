@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
+### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
 
-by Ado
+by Guiano
