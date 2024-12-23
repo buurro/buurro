@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
 
-by ヨルシカ
+by Disclosure
