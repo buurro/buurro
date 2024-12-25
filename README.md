@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by ヨルシカ
+by EGOIST
