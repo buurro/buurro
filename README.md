@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Fragment](https://open.spotify.com/track/2uE0hlIl8uIpkUjAfpChMM)
+### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
 
-by Elliot Hsu
+by Ryokuoushoku Shakai
