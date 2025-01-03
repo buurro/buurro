@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Radiohead
+by Zedd, Ryan Tedder
