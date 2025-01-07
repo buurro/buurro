@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
+### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
 
-by BewhY
+by Phantogram, Subtronics
