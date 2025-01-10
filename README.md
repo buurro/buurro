@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
 
-by Midnight Grand Orchestra
+by Guiano
