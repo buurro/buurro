@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by Guiano
+by Rusko
