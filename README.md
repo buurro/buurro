@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by TAKU INOUE, Hoshimachi Suisei
+by Radiohead
