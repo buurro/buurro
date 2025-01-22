@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by DAZBEE
+by 美波
