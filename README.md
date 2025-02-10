@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
 
-by Virtual Self
+by Aimer
