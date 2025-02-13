@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by Utah Saints
+by Frums
