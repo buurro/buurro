@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Frums
+by Mr. Bill
