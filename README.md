@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by Creepy Nuts
+by ヨルシカ
