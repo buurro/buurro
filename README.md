@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by ヨルシカ
+by Zedd, Matthew Koma
