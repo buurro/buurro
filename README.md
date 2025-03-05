@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by Nhato
+by nowisee
