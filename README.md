@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by nowisee
+by TOOL
