@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by Sleeping Pola
+by ヨルシカ
