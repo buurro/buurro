@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
+### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
 
-by Reol
+by Ryokuoushoku Shakai
