@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by Phantogram, Subtronics
+by Kx5, deadmau5, Kaskade, HAYLA
