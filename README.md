@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
 
-by Kx5, deadmau5, Kaskade, HAYLA
+by Camellia, Ninomae Ina'Nis
