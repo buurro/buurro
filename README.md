@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by "Weird Al" Yankovic
+by ヨルシカ
