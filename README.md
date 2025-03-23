@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
 
-by ヨルシカ
+by DAZBEE
