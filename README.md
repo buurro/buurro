@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by Kx5, deadmau5, Kaskade, HAYLA
+by TOOL
