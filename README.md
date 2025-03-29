@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by Guiano
+by Nothing But Thieves
