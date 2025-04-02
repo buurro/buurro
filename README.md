@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
+### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
 
-by Nhato
+by Ado
