@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Drenched in Air](https://open.spotify.com/track/4bPm3lZKdEasTlpe60YuvL)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Camellia, Ninomae Ina'Nis
+by Hisatomi, KIRA
