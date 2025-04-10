@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by Ryokuoushoku Shakai
+by Justice
