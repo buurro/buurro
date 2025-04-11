@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
 
-by Justice
+by TOOL
