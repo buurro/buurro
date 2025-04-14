@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [うっせぇわ](https://open.spotify.com/track/6EzZn96uOc9JsVGNRpx06n)
 
-by ヨルシカ
+by Ado
