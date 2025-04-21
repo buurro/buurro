@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
 
-by Massive Attack, Hope Sandoval
+by Utah Saints
