@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by Utah Saints
+by The Flashbulb
