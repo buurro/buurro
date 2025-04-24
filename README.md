@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
 
-by ヨルシカ
+by DAZBEE
