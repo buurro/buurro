@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [忘れじの言の葉](https://open.spotify.com/track/3bhP5Db4ZBcvqE0oJRLzhU)
+### [Polaris](https://open.spotify.com/track/6Qng1hawspj0ddyexe0IHV)
 
-by DAZBEE
+by deadmau5
