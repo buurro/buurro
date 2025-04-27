@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
+### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
 
-by Civil Twilight
+by Phantogram, Subtronics
