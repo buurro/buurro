@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Supersonic (my existence)](https://open.spotify.com/track/3qL63QvSTHvC4Uw8eEhz4z)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by Skrillex, Noisia, josh pan, Dylan Brady
+by Nhato
