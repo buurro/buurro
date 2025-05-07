@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [All Goes Wrong](https://open.spotify.com/track/4pfu1lEKJhRGTQf64cQPXd)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by Chase & Status, Tom Grennan
+by Virtual Self
