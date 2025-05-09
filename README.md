@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by Ado, Giga
+by meiyo
