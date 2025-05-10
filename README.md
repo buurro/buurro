@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
+### [Gekka](https://open.spotify.com/track/6BDUdwOnjVTGWJbsbOcm9V)
 
-by BewhY
+by Nhato
