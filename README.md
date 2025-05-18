@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
 
-by 美波
+by Nhato
