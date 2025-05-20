@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Phantogram, Subtronics
+by ヨルシカ
