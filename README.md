@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by EGOIST
+by TOOL
