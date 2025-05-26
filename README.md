@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by nowisee
+by ヨルシカ
