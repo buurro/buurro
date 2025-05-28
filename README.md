@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
+### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
 
-by nowisee
+by ODESZA, Ólafur Arnalds
