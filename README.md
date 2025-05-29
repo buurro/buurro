@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by ODESZA, Ólafur Arnalds
+by QUEEN BEE
