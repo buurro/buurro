@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by Frums
+by Justice
