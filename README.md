@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
 
-by Justice
+by Chase & Status, Clementine Douglas
