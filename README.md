@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [宵々古今](https://open.spotify.com/track/3KLHSYHSmny4sJo2finqy9)
+### [花になって - Be a flower](https://open.spotify.com/track/2EmkTBTh964LQen4Vz0svg)
 
-by Reol
+by Ryokuoushoku Shakai
