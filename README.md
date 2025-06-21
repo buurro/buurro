@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
+### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
 
-by Virtual Self
+by Kuhakugokko
