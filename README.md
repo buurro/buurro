@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
 
-by Royalston
+by Silversun Pickups
