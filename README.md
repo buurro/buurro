@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [what we did in the desert](https://open.spotify.com/track/48NL8GMxz08wkiGmGK6Wie)
 
-by Silversun Pickups
+by eightiesheadachetape
