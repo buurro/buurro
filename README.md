@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [what we did in the desert](https://open.spotify.com/track/48NL8GMxz08wkiGmGK6Wie)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by eightiesheadachetape
+by Royalston
