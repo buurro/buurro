@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by Royalston
+by QUEEN BEE
