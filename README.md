@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
+### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
 
-by QUEEN BEE
+by Joni Void
