@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by ヨルシカ
+by A Perfect Circle
