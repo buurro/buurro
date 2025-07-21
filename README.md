@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
+### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
 
-by Moderat
+by Creepy Nuts
