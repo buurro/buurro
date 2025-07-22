@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
+### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
 
-by Creepy Nuts
+by Aiobahn, KOCHO
