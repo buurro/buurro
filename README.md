@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
+### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
 
-by ヨルシカ
+by Mefjus
