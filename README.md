@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by TAKU INOUE, Hoshimachi Suisei
+by Justice
