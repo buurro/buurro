@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [what we did in the desert](https://open.spotify.com/track/48NL8GMxz08wkiGmGK6Wie)
 
-by Justice
+by eightiesheadachetape
