@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by Midnight Grand Orchestra
+by Aimer
