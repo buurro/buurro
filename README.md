@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by Midnight Grand Orchestra
+by Nothing But Thieves
