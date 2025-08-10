@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by Nothing But Thieves
+by TOOL
