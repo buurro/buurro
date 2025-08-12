@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
+### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
 
-by Mefjus
+by Ryokuoushoku Shakai
