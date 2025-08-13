@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by Ryokuoushoku Shakai
+by QUEEN BEE
