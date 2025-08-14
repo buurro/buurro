@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by QUEEN BEE
+by Wilkinson, iiola
