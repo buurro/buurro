@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by Joni Void
+by ヨルシカ
