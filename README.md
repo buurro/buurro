@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [confusion](https://open.spotify.com/track/4FqNnWz6gHbpq9piagPNDP)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by nowisee
+by ヨルシカ
