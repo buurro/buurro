@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
 
-by ヨルシカ
+by TAKU INOUE, Hoshimachi Suisei
