@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Down Under (feat. Colin Hay)](https://open.spotify.com/track/7AVyve7cFYTd51ha5i9kE2)
+### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
 
-by Luude, Colin Hay
+by Wilkinson, iiola
