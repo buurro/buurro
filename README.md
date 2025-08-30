@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bespoken Islands](https://open.spotify.com/track/4XCOC4w9NhAjalzdfRkq1b)
+### [だから僕は音楽を辞めた](https://open.spotify.com/track/5j7ixaLeGTGSv4DzKs0pCM)
 
-by Sakuraburst, Slyleaf, Leopold
+by ヨルシカ
