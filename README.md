@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by Chase & Status, Clementine Douglas
+by meiyo
