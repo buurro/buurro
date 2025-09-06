@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by Hisatomi, KIRA
+by Omri Smadar
