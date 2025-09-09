@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by YOASOBI
+by Rusko
