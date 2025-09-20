@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
 
-by Fred again.., Baby Keem
+by FantasticYouth
