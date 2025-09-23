@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [逆光 - ウタ from ONE PIECE FILM RED](https://open.spotify.com/track/5GXYKnnzBlHvrzBQ5WoxME)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
-by Ado
+by ヨルシカ
