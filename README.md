@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
+### [innocent arrogance](https://open.spotify.com/track/7JgBlEV4AbeHVhaTczGdTg)
 
-by ヨルシカ
+by BiSH
