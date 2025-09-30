@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
 
-by ヨルシカ
+by Ado
