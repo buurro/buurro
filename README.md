@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
+### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
 
-by Ado
+by Massive Attack, Hope Sandoval
