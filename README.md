@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by 理芽
+by A Perfect Circle
