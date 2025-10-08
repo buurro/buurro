@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by DJ Okawari
+by THE SIXTH LIE
