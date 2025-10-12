@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by 理芽
+by Kx5, deadmau5, Kaskade, HAYLA
