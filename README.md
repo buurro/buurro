@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
 
-by Kx5, deadmau5, Kaskade, HAYLA
+by nowisee
