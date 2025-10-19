@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
+### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
 
-by DAZBEE
+by ヨルシカ
