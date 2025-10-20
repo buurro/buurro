@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by ヨルシカ
+by ZUTOMAYO
