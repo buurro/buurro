@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
+### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
 
-by Mr. Bill
+by Utah Saints
