@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Something Good '08 - Radio Edit](https://open.spotify.com/track/4lnK5I462xLWy73vuYD98m)
+### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
 
-by Utah Saints
+by TOOL
