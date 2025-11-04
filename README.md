@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
+### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
 
-by QUEEN BEE
+by Creepy Nuts
