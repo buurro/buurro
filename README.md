@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
+### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
 
-by Creepy Nuts
+by deadmau5, Rebūke
