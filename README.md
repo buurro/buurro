@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
 
-by "Weird Al" Yankovic
+by 結束バンド
