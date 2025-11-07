@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [転がる岩、君に朝が降る](https://open.spotify.com/track/6wH2RsJUO8oypx8c5PG0bP)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by 結束バンド
+by Kx5, deadmau5, Kaskade, HAYLA
