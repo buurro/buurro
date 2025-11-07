@@ -14,10 +14,19 @@ sp = spotipy.Spotify(
     )
 )
 
-playlist = sp.playlist_tracks(
-    PLAYLIST_ID,
-    fields="items(added_at, track(name, external_urls.spotify, artists.name))",
-)["items"]
+playlist = []
+
+done = False
+while not done:
+    results = sp.playlist_tracks(
+        PLAYLIST_ID,
+        fields="items(added_at, track(name, external_urls.spotify, artists.name)), next",
+        offset=len(playlist),
+    )
+    playlist.extend(results["items"])
+    if results["next"] is None:
+        done = True
+
 
 added_today = []
 for i in playlist:
