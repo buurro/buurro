@@ -1,11 +1,9 @@
-import spotipy
-import random
 import os
-from spotipy.oauth2 import SpotifyClientCredentials
-from dotenv import load_dotenv
-from datetime import datetime, timedelta
+import random
+from datetime import UTC, datetime, timedelta
 
-load_dotenv()
+import spotipy
+from spotipy.oauth2 import SpotifyClientCredentials
 
 PLAYLIST_ID = "552XL8oJY1VSZfPqFUnltY"
 
@@ -23,8 +21,8 @@ playlist = sp.playlist_tracks(
 
 added_today = []
 for i in playlist:
-    added_at = datetime.strptime(i["added_at"], "%Y-%m-%dT%H:%M:%SZ")
-    if datetime.utcnow() - added_at < timedelta(days=1):
+    added_at = datetime.fromisoformat(i["added_at"].replace("Z", "+00:00"))
+    if datetime.now(UTC) - added_at < timedelta(days=1):
         added_today.append(i)
 
 if added_today:
