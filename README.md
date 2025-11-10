@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [leavemealone](https://open.spotify.com/track/1MVqeIAwhD4T44AKVkIfic)
+### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
 
-by Fred again.., Baby Keem
+by Ahadadream, Priya Ragu, Skrillex, contra
