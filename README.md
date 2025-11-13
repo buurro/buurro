@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [JUMP](https://open.spotify.com/track/5H1sKFMzDeMtXwND3V6hRY)
+### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
 
-by BLACKPINK
+by LE SSERAFIM, j-hope
