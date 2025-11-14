@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
+### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
 
-by LE SSERAFIM, j-hope
+by BewhY
