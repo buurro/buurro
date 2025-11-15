@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by BewhY
+by Linkin Park, Rakim
