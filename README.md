@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
+### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
 
-by TOOL
+by THE SIXTH LIE
