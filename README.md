@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [心に穴が空いた](https://open.spotify.com/track/0fFPF89LHrD2ziMbeLSxXy)
 
-by deadmau5
+by ヨルシカ
