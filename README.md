@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [心に穴が空いた](https://open.spotify.com/track/0fFPF89LHrD2ziMbeLSxXy)
+### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
 
-by ヨルシカ
+by LE SSERAFIM, j-hope
