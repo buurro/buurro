@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by LE SSERAFIM, j-hope
+by MAN WITH A MISSION
