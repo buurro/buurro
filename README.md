@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
+### [Turn On The Lights again.. (feat. Future)](https://open.spotify.com/track/6gdDu39yYqPcaTgCwYEW8i)
 
-by Fred again.., The Blessed Madonna
+by Fred again.., Swedish House Mafia, Future
