@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Turn On The Lights again.. (feat. Future)](https://open.spotify.com/track/6gdDu39yYqPcaTgCwYEW8i)
+### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
 
-by Fred again.., Swedish House Mafia, Future
+by Creepy Nuts
