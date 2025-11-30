@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [堕天 - Daten](https://open.spotify.com/track/5HPsZwo40KA3GThqBFZFac)
+### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
 
-by Creepy Nuts
+by ヨルシカ
