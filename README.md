@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [夜行](https://open.spotify.com/track/1srR6pbN1YCtIulufVNeMZ)
+### [よふかしのうた - Yofukashino Uta](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by ヨルシカ
+by Creepy Nuts
