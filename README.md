@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた - Yofukashino Uta](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Creepy Nuts
+by ヨルシカ
