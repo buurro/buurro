@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/52XjrfqvrxaMtjCDYEKkXN)
+### [ずっとずっとずっと](https://open.spotify.com/track/2He9deEfdXYWxnTUi0oOb0)
 
-by Moderat
+by Ryokuoushoku Shakai
