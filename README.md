@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Never Change - The Caracal Project Remix](https://open.spotify.com/track/6oODTxsDPdrWES5Sd7777e)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by Apashe, The Caracal Project, YMIR
+by Frums
