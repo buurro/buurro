@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
+### [よふかしのうた - Yofukashino Uta](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
 
-by Ado, Giga
+by Creepy Nuts
