@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた - Yofukashino Uta](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
 
-by Creepy Nuts
+by millstones
