@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
+### [Latch](https://open.spotify.com/track/51ODNNDZm21HU7wI7cccRr)
 
-by Nothing But Thieves
+by Disclosure, Sam Smith
