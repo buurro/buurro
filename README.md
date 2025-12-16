@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by Aimer
+by Radiohead
