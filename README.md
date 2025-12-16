@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Latch](https://open.spotify.com/track/51ODNNDZm21HU7wI7cccRr)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by Disclosure, Sam Smith
+by Aimer
