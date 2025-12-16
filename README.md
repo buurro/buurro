@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
+### [Welcome to the DCC](https://open.spotify.com/track/0ZImVxesVZIydOnwTMSWOK)
 
-by deadmau5, Rebūke
+by Nothing But Thieves
