@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
+### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
 
-by Radiohead
+by Mefjus
