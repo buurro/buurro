@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
+### [Cosmic Love](https://open.spotify.com/track/1myEOhXztRxUVfaAEQiKkU)
 
-by Mefjus
+by Florence + The Machine
