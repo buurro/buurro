@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Cosmic Love](https://open.spotify.com/track/1myEOhXztRxUVfaAEQiKkU)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by Florence + The Machine
+by Fred again.., Wallfacer
