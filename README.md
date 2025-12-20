@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by Fred again.., Wallfacer
+by ヨルシカ
