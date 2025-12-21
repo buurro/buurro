@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
 
-by ヨルシカ
+by deadmau5, Rebūke
