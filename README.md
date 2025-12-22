@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
+### [Particle Arts](https://open.spotify.com/track/57faA48chdgnFri6b27IFY)
 
-by deadmau5, Rebūke
+by Virtual Self
