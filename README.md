@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [The Hollow](https://open.spotify.com/track/4XDBEoD6QFnzDY5oMmNVXN)
 
-by Zedd, Ryan Tedder
+by A Perfect Circle
