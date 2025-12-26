@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Hollow](https://open.spotify.com/track/4XDBEoD6QFnzDY5oMmNVXN)
+### [Down Under (feat. Colin Hay)](https://open.spotify.com/track/7AVyve7cFYTd51ha5i9kE2)
 
-by A Perfect Circle
+by Luude, Colin Hay
