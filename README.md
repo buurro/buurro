@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [The High Road](https://open.spotify.com/track/5cwN1htZyoWqZCc33f3RfE)
 
-by Zedd, Ryan Tedder
+by Broken Bells, Danger Mouse, James Mercer
