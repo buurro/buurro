@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The High Road](https://open.spotify.com/track/5cwN1htZyoWqZCc33f3RfE)
+### [Particle Arts](https://open.spotify.com/track/5U6FLERTCtCgLUXU4XsIf5)
 
-by Broken Bells, Danger Mouse, James Mercer
+by Virtual Self
