@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by LE SSERAFIM, j-hope
+by DJ Okawari
