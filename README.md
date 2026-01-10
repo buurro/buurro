@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
 
-by nowisee
+by Fred again.., The Blessed Madonna
