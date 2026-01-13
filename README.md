@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by 美波
+by The Flashbulb
