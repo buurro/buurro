@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by The Flashbulb
+by Fred again.., Wallfacer
