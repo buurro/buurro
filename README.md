@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by Fred again.., Wallfacer
+by DJ Okawari
