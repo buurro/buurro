@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
+### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
 
-by EGOIST
+by Chase & Status, Clementine Douglas
