@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
+### [Galvanize](https://open.spotify.com/track/4bz7uB4edifWKJXSDxwHcs)
 
-by Chase & Status, Clementine Douglas
+by The Chemical Brothers
