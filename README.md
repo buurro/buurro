@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Galvanize](https://open.spotify.com/track/4bz7uB4edifWKJXSDxwHcs)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by The Chemical Brothers
+by "Weird Al" Yankovic
