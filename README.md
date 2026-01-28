@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [Ascension](https://open.spotify.com/track/1ebXLCzUbQmJMXHIcoi1RN)
 
-by ヨルシカ
+by KOAN Sound
