@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by deadmau5, Rebūke
+by MAN WITH A MISSION
