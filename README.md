@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Stay Crunchy](https://open.spotify.com/track/16MBgVIBhdZjORLDrcLU2c)
+### [心に穴が空いた](https://open.spotify.com/track/0fFPF89LHrD2ziMbeLSxXy)
 
-by Ronald Jenkees
+by ヨルシカ
