@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
+### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
 
-by Zedd, Matthew Koma
+by TAKU INOUE, Hoshimachi Suisei
