@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Sanji Juunihun](https://open.spotify.com/track/26jQE4o0tM9onEoI4ylGOV)
+### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
 
-by TAKU INOUE, Hoshimachi Suisei
+by Ahadadream, Priya Ragu, Skrillex, contra
