@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by Ahadadream, Priya Ragu, Skrillex, contra
+by MAN WITH A MISSION
