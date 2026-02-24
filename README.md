@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
+### [Papillon](https://open.spotify.com/track/5hcfx0GaIpU5cLiiN2l8mX)
 
-by Kx5, deadmau5, Kaskade, HAYLA
+by NMIXX
