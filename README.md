@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Papillon](https://open.spotify.com/track/5hcfx0GaIpU5cLiiN2l8mX)
+### [六等星の夜](https://open.spotify.com/track/1VggvibdeX96RwJfbKzief)
 
-by NMIXX
+by Aimer
