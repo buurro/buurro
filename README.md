@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
 
-by Mr. Bill
+by 美波
