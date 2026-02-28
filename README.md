@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライラック](https://open.spotify.com/track/3WePQc3e2le4Vmh5W2idln)
+### [Fragments](https://open.spotify.com/track/2H9Nfl5YAgt7JizNQef9vl)
 
-by 美波
+by Aiobahn, KOCHO
