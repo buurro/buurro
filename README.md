@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
 
-by Zeds Dead
+by Fred again.., Amyl and The Sniffers
