@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by Fred again.., Amyl and The Sniffers
+by Fred again.., Wallfacer
