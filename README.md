@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
+### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
 
-by Fred again.., Wallfacer
+by Justice
