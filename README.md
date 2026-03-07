@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
+### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
 
-by Ahadadream, Priya Ragu, Skrillex, contra
+by Mefjus
