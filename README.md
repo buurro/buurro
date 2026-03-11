@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GO](https://open.spotify.com/track/3FZPp9lBUvhsxFxKJi3VkB)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by BLACKPINK
+by A Perfect Circle
