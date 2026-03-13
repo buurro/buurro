@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
+### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
 
-by "Weird Al" Yankovic
+by YOASOBI
