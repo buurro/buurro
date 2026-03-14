@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
+### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
 
-by YOASOBI
+by Ado
