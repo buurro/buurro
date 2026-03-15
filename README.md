@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Ado
+by Ado, Giga
