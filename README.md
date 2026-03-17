@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カタオモイ](https://open.spotify.com/track/6g93YtKKHU2H1qIqhLIL0Y)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Aimer
+by Hisatomi, KIRA
