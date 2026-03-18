@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
 
-by Hisatomi, KIRA
+by Royalston
