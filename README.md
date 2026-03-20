@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Pneuma](https://open.spotify.com/track/03sEzk1VyrUZSgyhoQR0LZ)
+### [Eve, Psyche & The Bluebeard’s wife](https://open.spotify.com/track/4QhnNyKDsAkXPwHkSnuc89)
 
-by TOOL
+by LE SSERAFIM
