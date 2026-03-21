@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Eve, Psyche & The Bluebeard’s wife](https://open.spotify.com/track/4QhnNyKDsAkXPwHkSnuc89)
+### [BANG!!!](https://open.spotify.com/track/4o1s691Qn6lUmFh1Bl28NG)
 
-by LE SSERAFIM
+by EGOIST
