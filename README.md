@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [kuuchuubunkai](https://open.spotify.com/track/7ESZ3LX0Fft4cpA45kIAgm)
+### [友達のうた](https://open.spotify.com/track/5or2Q3kjh2nOG7IIOR716X)
 
-by Sleeping Pola
+by Yoeko Kurahashi
