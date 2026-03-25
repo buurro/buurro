@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [友達のうた](https://open.spotify.com/track/5or2Q3kjh2nOG7IIOR716X)
+### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
 
-by Yoeko Kurahashi
+by Zeds Dead
