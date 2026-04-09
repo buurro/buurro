@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ホロネス](https://open.spotify.com/track/4FAUrZ8wdf8mV202FcEgn6)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by 美波
+by Hisatomi, KIRA
