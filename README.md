@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Stay Crunchy](https://open.spotify.com/track/16MBgVIBhdZjORLDrcLU2c)
+### [Bad Kingdom](https://open.spotify.com/track/52XjrfqvrxaMtjCDYEKkXN)
 
-by Ronald Jenkees
+by Moderat
