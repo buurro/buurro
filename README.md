@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [春泥棒](https://open.spotify.com/track/1rr2DJOxV0sHXeUXCAz1yf)
 
-by Mr. Bill
+by ヨルシカ
