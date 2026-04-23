@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Nanahoshi Orchestra
+by Zedd, Ryan Tedder
