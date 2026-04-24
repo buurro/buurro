@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
+### [Bad Kingdom](https://open.spotify.com/track/52XjrfqvrxaMtjCDYEKkXN)
 
-by Zedd, Ryan Tedder
+by Moderat
