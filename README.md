@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
+### [Good Life](https://open.spotify.com/track/6MWYSp8nWt4IZiRMCDPHXT)
 
-by Civil Twilight
+by ZHU
