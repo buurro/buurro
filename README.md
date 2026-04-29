@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Good Life](https://open.spotify.com/track/6MWYSp8nWt4IZiRMCDPHXT)
+### [JUMP](https://open.spotify.com/track/5H1sKFMzDeMtXwND3V6hRY)
 
-by ZHU
+by BLACKPINK
