@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [JUMP](https://open.spotify.com/track/5H1sKFMzDeMtXwND3V6hRY)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by BLACKPINK
+by meiyo
