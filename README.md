@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
+### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
 
-by meiyo
+by Fred again.., The Blessed Madonna
