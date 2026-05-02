@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
+### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
 
-by Fred again.., The Blessed Madonna
+by ODESZA, Ólafur Arnalds
