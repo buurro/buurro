@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
+### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
 
-by ODESZA, Ólafur Arnalds
+by millstones
