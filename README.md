@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [カガリビト](https://open.spotify.com/track/2aiANo3P7FvB1qi7iJaSXr)
+### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
 
-by millstones
+by Nhato
