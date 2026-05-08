@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/1mCmHiSivRYNDghiq1lfnz)
+### [SOMETHING AIN'T RIGHT](https://open.spotify.com/track/3RxL9p66oXKuSdXYeFcJeT)
 
-by Moderat
+by XG
