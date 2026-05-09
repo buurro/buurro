@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SOMETHING AIN'T RIGHT](https://open.spotify.com/track/3RxL9p66oXKuSdXYeFcJeT)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by XG
+by Omri Smadar
