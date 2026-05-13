@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [like JENNIE](https://open.spotify.com/track/0fK7ie6XwGxQTIkpFoWkd1)
 
-by Nhato
+by JENNIE
