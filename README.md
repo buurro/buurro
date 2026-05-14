@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [like JENNIE](https://open.spotify.com/track/0fK7ie6XwGxQTIkpFoWkd1)
+### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
 
-by JENNIE
+by nowisee
