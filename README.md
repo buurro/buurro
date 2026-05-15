@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ライフライン](https://open.spotify.com/track/0nra8bUJku8edPYj4sg3re)
+### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
 
-by nowisee
+by Ado
