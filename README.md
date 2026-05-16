@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [新時代](https://open.spotify.com/track/28MATCYDctW5EiBa2repxb)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by Ado
+by "Weird Al" Yankovic
