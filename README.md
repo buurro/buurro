@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
+### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
 
-by Aimer
+by Mr. Bill
