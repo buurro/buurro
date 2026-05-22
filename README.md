@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Ejecta](https://open.spotify.com/track/6MEpzi4rt4gvRrZzklSyC6)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by Mr. Bill
+by MAN WITH A MISSION
