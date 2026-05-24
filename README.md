@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
+### [Particle Arts](https://open.spotify.com/track/57faA48chdgnFri6b27IFY)
 
-by Fred again.., The Blessed Madonna
+by Virtual Self
