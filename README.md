@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
+### [I need a break.](https://open.spotify.com/track/2bsugkJJSKAI1et7Xf2F54)
 
-by ZUTOMAYO
+by The Caracal Project, Buunshin, Rhode
