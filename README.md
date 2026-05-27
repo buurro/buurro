@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I need a break.](https://open.spotify.com/track/2bsugkJJSKAI1et7Xf2F54)
+### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
 
-by The Caracal Project, Buunshin, Rhode
+by Frums
