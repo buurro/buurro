@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [XNOR XNOR XNOR](https://open.spotify.com/track/1Hvrq2dWErSamXOIaCiJ5Y)
+### [Lost At Sea](https://open.spotify.com/track/3Gwq0zKnMWluOEPKh93BeC)
 
-by Frums
+by Zedd, Ryan Tedder
