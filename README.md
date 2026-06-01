@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Make a loser - Instrumental](https://open.spotify.com/track/3b1bxj9HhFZeqijZpIRqpx)
+### [なにやってもうまくいかない](https://open.spotify.com/track/2ILz4eU7UCTv0Wup7F5lVt)
 
-by Nanahoshi Orchestra
+by meiyo
