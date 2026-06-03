@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [よふかしのうた - Yofukashino Uta](https://open.spotify.com/track/0LQs5gRhqJKLOl8fFukRsQ)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by Creepy Nuts
+by Mr. Bill
