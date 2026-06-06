@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
+### [No Love](https://open.spotify.com/track/0ZD8MnUvlpO1b3F4zSdepc)
 
-by nowisee
+by Hooray For Earth
