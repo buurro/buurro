@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [No Love](https://open.spotify.com/track/0ZD8MnUvlpO1b3F4zSdepc)
+### [Good Life](https://open.spotify.com/track/6MWYSp8nWt4IZiRMCDPHXT)
 
-by Hooray For Earth
+by ZHU
