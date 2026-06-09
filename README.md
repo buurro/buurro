@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [JUMP](https://open.spotify.com/track/5H1sKFMzDeMtXwND3V6hRY)
+### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
 
-by BLACKPINK
+by Chase & Status, Clementine Douglas
