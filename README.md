@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Say The Word (feat. Clementine Douglas)](https://open.spotify.com/track/1jxGhPyCn9SZR9eqrTduja)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Chase & Status, Clementine Douglas
+by Ado, Giga
