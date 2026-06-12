@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Genesis](https://open.spotify.com/track/4wSmqFg31t6LsQWtzYAJob)
+### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
 
-by Justice
+by Omri Smadar
