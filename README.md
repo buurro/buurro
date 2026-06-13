@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Plantation](https://open.spotify.com/track/2O6H5GbkxrQ9x9N7MvIcW6)
+### [Flamingo](https://open.spotify.com/track/34TufQ4EFzmDIFXJ3A8Yau)
 
-by Omri Smadar
+by Kero Kero Bonito
