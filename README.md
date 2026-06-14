@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Flamingo](https://open.spotify.com/track/34TufQ4EFzmDIFXJ3A8Yau)
+### [Everyday - Netsky Remix](https://open.spotify.com/track/3xcv3R9LGJkprp0EOQvdNt)
 
-by Kero Kero Bonito
+by Rusko
