@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by 理芽
+by Hisatomi, KIRA
