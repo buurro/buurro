@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [Two Minds](https://open.spotify.com/track/5RmpD1Z77amkLly5tLyviz)
 
-by Hisatomi, KIRA
+by NERO
