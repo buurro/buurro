@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Two Minds](https://open.spotify.com/track/5RmpD1Z77amkLly5tLyviz)
+### [Not Exactly - Rebūke Remix](https://open.spotify.com/track/0toCiiWUNHiWsfbshXY0TC)
 
-by NERO
+by deadmau5, Rebūke
