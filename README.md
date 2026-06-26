@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Paradise Circus](https://open.spotify.com/track/2BndJYJQ17UcEeUFJP5JmY)
+### [Hardware Store](https://open.spotify.com/track/2Q26sym8OSOl6PfH7LLPtJ)
 
-by Massive Attack, Hope Sandoval
+by "Weird Al" Yankovic
