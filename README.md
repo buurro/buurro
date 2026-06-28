@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hit Me](https://open.spotify.com/track/7Eg3PEtzAhFA5P4mpKUhXj)
+### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
 
-by Zeds Dead
+by A Perfect Circle
