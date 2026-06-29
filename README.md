@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [3 Libras](https://open.spotify.com/track/5kHkaBN8OEQlmXfQkACxSt)
+### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
 
-by A Perfect Circle
+by ヨルシカ
