@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [晴る](https://open.spotify.com/track/5eY7692tmgHB9dbmq6wa2M)
+### [Down Under (feat. Colin Hay)](https://open.spotify.com/track/7AVyve7cFYTd51ha5i9kE2)
 
-by ヨルシカ
+by Luude, Colin Hay
