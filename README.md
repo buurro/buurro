@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [胎児に月はキスをしない](https://open.spotify.com/track/2Ta3g1o5WD4xKgkI2L1Jys)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by 理芽
+by Midnight Grand Orchestra
