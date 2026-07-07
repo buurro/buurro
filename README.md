@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Rumination thinking - DAZBEE Ver.](https://open.spotify.com/track/67V3iR0LM2l9FlImOEJKTw)
+### [Passage D](https://open.spotify.com/track/0rS0eglXz6PClT30yiHUsL)
 
-by DAZBEE
+by The Flashbulb
