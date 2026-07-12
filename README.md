@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Strobe](https://open.spotify.com/track/4kJWtxDDNb9oAk3h7sX3N4)
+### [Latch](https://open.spotify.com/track/51ODNNDZm21HU7wI7cccRr)
 
-by deadmau5
+by Disclosure, Sam Smith
