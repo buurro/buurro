@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Latch](https://open.spotify.com/track/51ODNNDZm21HU7wI7cccRr)
+### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
 
-by Disclosure, Sam Smith
+by QUEEN BEE
