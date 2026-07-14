@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [メフィスト](https://open.spotify.com/track/45LUKiex0D78VuhP3Oz6mG)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by QUEEN BEE
+by Fred again.., Wallfacer
