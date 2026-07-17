@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Galvanize](https://open.spotify.com/track/4bz7uB4edifWKJXSDxwHcs)
+### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
 
-by The Chemical Brothers, Q-Tip
+by Zedd, Matthew Koma
