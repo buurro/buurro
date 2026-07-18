@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Spectrum](https://open.spotify.com/track/1dFkD1JfRMzwO6hwUsE8aS)
+### [Escape (feat. Hayla)](https://open.spotify.com/track/3KAExCnsrlAw9ugJcA1QDH)
 
-by Zedd, Matthew Koma
+by Kx5, deadmau5, Kaskade, HAYLA
