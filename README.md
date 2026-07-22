@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [海底、月明かり](https://open.spotify.com/track/56xDh58H5z7NPMlgXkTQA3)
+### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
 
-by ヨルシカ
+by LE SSERAFIM, j-hope
