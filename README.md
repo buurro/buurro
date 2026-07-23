@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [SPAGHETTI](https://open.spotify.com/track/2N9miXnewVmUrgl6JSK1FI)
+### [Give Thanks, Give Praise](https://open.spotify.com/track/3iNAdtlehRYGgYV6rt07IM)
 
-by LE SSERAFIM, j-hope
+by Young Franco, General Levy, Tommy Villiers
