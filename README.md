@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Hollow](https://open.spotify.com/track/4XDBEoD6QFnzDY5oMmNVXN)
+### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
 
-by A Perfect Circle
+by Disclosure
