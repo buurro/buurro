@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
+### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
 
-by Disclosure
+by Aimer
