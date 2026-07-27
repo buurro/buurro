@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [i-mage <in/AR>](https://open.spotify.com/track/6jYhnMQdDcMDqyGTYU4U7M)
+### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
 
-by Aimer
+by 稲葉曇
