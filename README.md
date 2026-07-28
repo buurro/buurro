@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [ラグトレイン](https://open.spotify.com/track/6v8fX5yXd15H3xSyvVvJ5e)
+### [Opiate²](https://open.spotify.com/track/6iQDmWrbrMQ0vPfbKqqvKU)
 
-by 稲葉曇
+by TOOL
