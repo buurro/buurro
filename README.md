@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hibana](https://open.spotify.com/track/4T3bnTXVJEq5oTzapRLIrg)
+### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
 
-by THE SIXTH LIE
+by Fred again.., Amyl and The Sniffers
