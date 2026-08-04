@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
+### [Supersonic (my existence)](https://open.spotify.com/track/3qL63QvSTHvC4Uw8eEhz4z)
 
-by Fred again.., Amyl and The Sniffers
+by Skrillex, Noisia, josh pan, Dylan Brady
