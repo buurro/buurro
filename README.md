@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Cosmic Love](https://open.spotify.com/track/1myEOhXztRxUVfaAEQiKkU)
+### [心に穴が空いた](https://open.spotify.com/track/0fFPF89LHrD2ziMbeLSxXy)
 
-by Florence + The Machine
+by ヨルシカ
