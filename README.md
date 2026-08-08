@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GOTTASADAE](https://open.spotify.com/track/5nJvKQsFRmCp2i7EiKjZDg)
+### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
 
-by BewhY
+by Fred again.., Amyl and The Sniffers
