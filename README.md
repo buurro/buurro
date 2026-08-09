@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Eve, Psyche & The Bluebeard’s wife](https://open.spotify.com/track/4QhnNyKDsAkXPwHkSnuc89)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by LE SSERAFIM
+by ZUTOMAYO
