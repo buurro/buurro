@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [you're a star](https://open.spotify.com/track/017erFbOyCrdz0yburnVGZ)
+### [Eve, Psyche & The Bluebeard’s wife](https://open.spotify.com/track/4QhnNyKDsAkXPwHkSnuc89)
 
-by Fred again.., Amyl and The Sniffers
+by LE SSERAFIM
