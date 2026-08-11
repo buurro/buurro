@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Turn On The Lights again.. (feat. Future)](https://open.spotify.com/track/6gdDu39yYqPcaTgCwYEW8i)
+### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
 
-by Fred again.., Swedish House Mafia, Future
+by MAN WITH A MISSION
