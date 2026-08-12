@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Get Off of My Way](https://open.spotify.com/track/03oUxFWoiXnMWi0NJkg63P)
+### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
 
-by MAN WITH A MISSION
+by Fred again.., The Blessed Madonna
