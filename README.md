@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
+### [友達のうた](https://open.spotify.com/track/5or2Q3kjh2nOG7IIOR716X)
 
-by Fred again.., The Blessed Madonna
+by Yoeko Kurahashi
