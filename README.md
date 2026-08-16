@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Blight Mamba](https://open.spotify.com/track/175tsy7rxRWN8QT7pB2onB)
+### [No Love](https://open.spotify.com/track/0ZD8MnUvlpO1b3F4zSdepc)
 
-by Royalston
+by Hooray For Earth
