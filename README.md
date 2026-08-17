@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [No Love](https://open.spotify.com/track/0ZD8MnUvlpO1b3F4zSdepc)
+### [How To Disappear Completely](https://open.spotify.com/track/69pwmeyvQMuHMtkCmpEWhQ)
 
-by Hooray For Earth
+by Radiohead
