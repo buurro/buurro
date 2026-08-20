@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [細胞](https://open.spotify.com/track/5m31wrZP59yWVyy3ZARZjf)
+### [Down Under (feat. Colin Hay)](https://open.spotify.com/track/7AVyve7cFYTd51ha5i9kE2)
 
-by nowisee
+by Luude, Colin Hay
