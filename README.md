@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Letters From The Sky](https://open.spotify.com/track/1g8dRVzAvmSOTfTz5m0H9K)
+### [Starry Sky](https://open.spotify.com/track/0xT3qfbnuttHFM8GeV2vzV)
 
-by Civil Twilight
+by DJ Okawari
