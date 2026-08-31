@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Lazy Eye](https://open.spotify.com/track/7eZyj92v6bZsoQ85MxWZsO)
+### [aruarian dance](https://open.spotify.com/track/4sUTagdmyuyAxd7RvbygpQ)
 
-by Silversun Pickups
+by Nujabes
