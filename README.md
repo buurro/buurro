@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [aruarian dance](https://open.spotify.com/track/4sUTagdmyuyAxd7RvbygpQ)
+### [promise](https://open.spotify.com/track/1rwrkWd8Mo6yibUCiwZoAy)
 
-by Nujabes
+by Kohmi Hirose
