@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Turn On The Lights again.. (feat. Future)](https://open.spotify.com/track/6gdDu39yYqPcaTgCwYEW8i)
+### [While you count down.](https://open.spotify.com/track/2GTBThIhxFWnSNpvLr1HHu)
 
-by Fred again.., Swedish House Mafia, Future
+by The Caracal Project, Camo & Krooked
