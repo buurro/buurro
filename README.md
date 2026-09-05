@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Haul](https://open.spotify.com/track/3rhRvDCMwUrEPGt2zDfONa)
+### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
 
-by Kuhakugokko
+by Aimer
