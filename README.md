@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
+### [While you count down.](https://open.spotify.com/track/2GTBThIhxFWnSNpvLr1HHu)
 
-by Aimer
+by The Caracal Project, Camo & Krooked
