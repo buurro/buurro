@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The Pot](https://open.spotify.com/track/1lATXTBJDHwawvT1UfxWu3)
+### [Corot-7b](https://open.spotify.com/track/4OOhfihnUXGFJPZq19RSsP)
 
-by TOOL
+by Mr. Bill
