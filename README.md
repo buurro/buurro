@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Kaede - Chillout Mix](https://open.spotify.com/track/1LbXpPv7ixhaOmh4DXtsyc)
+### [SOS](https://open.spotify.com/track/6y3oOgBpjvCnIymqsk7yTb)
 
-by Nhato
+by Midnight Grand Orchestra
