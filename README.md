@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Close Your Eyes](https://open.spotify.com/track/3SSPZGUhsCVzOdjYtQRaiK)
+### [I beg you](https://open.spotify.com/track/2zjcMpfEkRy17HH7lDEFCH)
 
-by Wilkinson, iiola
+by Aimer
