@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [風](https://open.spotify.com/track/0wU8Ejhr1mAA9DdCw1nBcz)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Guiano
+by Hisatomi, KIRA
