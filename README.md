@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by Hisatomi, KIRA
+by Fred again.., Wallfacer
