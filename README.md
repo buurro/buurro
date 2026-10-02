@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
+### [Good Life](https://open.spotify.com/track/6MWYSp8nWt4IZiRMCDPHXT)
 
-by Fred again.., Wallfacer
+by ZHU
