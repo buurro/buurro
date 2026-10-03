@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Good Life](https://open.spotify.com/track/6MWYSp8nWt4IZiRMCDPHXT)
+### [群青](https://open.spotify.com/track/1zd35Y44Blc1CwwVbW3Qnk)
 
-by ZHU
+by YOASOBI
