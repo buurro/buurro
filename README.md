@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [While you count down.](https://open.spotify.com/track/2GTBThIhxFWnSNpvLr1HHu)
+### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
 
-by The Caracal Project, Camo & Krooked
+by Ahadadream, Priya Ragu, Skrillex
