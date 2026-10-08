@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
+### [踊 - Bon-Odo Remix](https://open.spotify.com/track/2zs1PUVNJJxMuII48yJke8)
 
-by Ahadadream, Priya Ragu, Skrillex
+by Ado, Giga
