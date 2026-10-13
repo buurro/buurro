@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Hear Me](https://open.spotify.com/track/3GscDUZPhGl9pbXR0VAS4G)
+### [マイノリティ脈絡](https://open.spotify.com/track/4ReCD8wyqRUxjqg6qOhC8u)
 
-by Mefjus
+by ZUTOMAYO
