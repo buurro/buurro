@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Bad Kingdom](https://open.spotify.com/track/52XjrfqvrxaMtjCDYEKkXN)
+### [Marea (we’ve lost dancing)](https://open.spotify.com/track/5Z8Dj3LtbyCMiwE86rhg2f)
 
-by Moderat
+by Fred again.., The Blessed Madonna
