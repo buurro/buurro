@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [harvest sky](https://open.spotify.com/track/3M8bJdRfYj1S5iKZIgwAnH)
+### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
 
-by Oklou, underscores
+by Hisatomi, KIRA
