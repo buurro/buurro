@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [lullaby (feat. KIRA)](https://open.spotify.com/track/2ldYoT5OjEXmDwyF5W5yu4)
+### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
 
-by Hisatomi, KIRA
+by Ahadadream, Priya Ragu, Skrillex
