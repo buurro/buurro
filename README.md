@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [TAKA](https://open.spotify.com/track/645e3XeVtB7QYpl3RdJBil)
+### [雲を抜け風下へ私だけ](https://open.spotify.com/track/19XtWJTyMKMfLYUec3FlHx)
 
-by Ahadadream, Priya Ragu, Skrillex
+by ヨルシカ
