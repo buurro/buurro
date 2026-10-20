@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [雲を抜け風下へ私だけ](https://open.spotify.com/track/19XtWJTyMKMfLYUec3FlHx)
+### [昼鳶](https://open.spotify.com/track/4MEr1Y8pLCtZ4gW5MriwB9)
 
 by ヨルシカ
