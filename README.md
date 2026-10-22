@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Post-Credits Scene](https://open.spotify.com/track/5tI16oTqQpYct8C0eYAgrf)
+### [Light Of Day](https://open.spotify.com/track/58sa3HUZL71gpMB6XvhaUo)
 
-by Joni Void
+by ODESZA, Ólafur Arnalds
