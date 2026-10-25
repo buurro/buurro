@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [GO](https://open.spotify.com/track/3FZPp9lBUvhsxFxKJi3VkB)
+### [JUMP](https://open.spotify.com/track/5H1sKFMzDeMtXwND3V6hRY)
 
 by BLACKPINK
