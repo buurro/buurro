@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Eve, Psyche & The Bluebeard’s wife](https://open.spotify.com/track/4QhnNyKDsAkXPwHkSnuc89)
+### [Higher Than Ever Before](https://open.spotify.com/track/0H2idlyIDxyotmpAJ2NUeh)
 
-by LE SSERAFIM
+by Disclosure
