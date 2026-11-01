@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [aruarian dance](https://open.spotify.com/track/4sUTagdmyuyAxd7RvbygpQ)
+### [丸ノ内サディスティック](https://open.spotify.com/track/1mWN1USPKg632qQXG9sfDL)
 
-by Nujabes
+by Sheena Ringo
