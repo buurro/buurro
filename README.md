@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [丸ノ内サディスティック](https://open.spotify.com/track/1mWN1USPKg632qQXG9sfDL)
+### [Guilty All the Same (feat. Rakim)](https://open.spotify.com/track/6L5QMBrydoaapTDMQ0Anui)
 
-by Sheena Ringo
+by Linkin Park, Rakim
