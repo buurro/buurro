@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [Black Out Days - Subtronics Remix](https://open.spotify.com/track/0Tcy9RRWvcnqepvmVcqv05)
+### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
 
-by Phantogram, Subtronics
+by Fred again.., Wallfacer
