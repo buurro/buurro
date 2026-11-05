@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [I Luv U](https://open.spotify.com/track/7MRKWuWtDTOz76kDiqkKZh)
+### [family and friends](https://open.spotify.com/track/2z1RDRMFL2Vy4AfXCxCGzQ)
 
-by Fred again.., Wallfacer
+by Oklou
