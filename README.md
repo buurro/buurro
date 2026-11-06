@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [family and friends](https://open.spotify.com/track/2z1RDRMFL2Vy4AfXCxCGzQ)
+### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
 
-by Oklou
+by FantasticYouth
