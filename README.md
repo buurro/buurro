@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [小喋日和](https://open.spotify.com/track/4AElkruOc9gECdltSuV3JN)
+### [Vicarious](https://open.spotify.com/track/65ShmiE5aLBdcIGr7tHX35)
 
-by FantasticYouth
+by TOOL
