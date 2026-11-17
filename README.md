@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [While you count down.](https://open.spotify.com/track/2GTBThIhxFWnSNpvLr1HHu)
+### [The High Road](https://open.spotify.com/track/5cwN1htZyoWqZCc33f3RfE)
 
-by The Caracal Project, Camo & Krooked
+by Broken Bells, Danger Mouse, James Mercer
