@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [The High Road](https://open.spotify.com/track/5cwN1htZyoWqZCc33f3RfE)
+### [踊り子](https://open.spotify.com/track/1YXot2MLAG9sttepCtBRM7)
 
-by Broken Bells, Danger Mouse, James Mercer
+by Vaundy
