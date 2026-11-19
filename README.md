@@ -1,5 +1,5 @@
 ### 🎵 Song Of The Day
 
-### [踊り子](https://open.spotify.com/track/1YXot2MLAG9sttepCtBRM7)
+### [Turn On The Lights again.. (feat. Future)](https://open.spotify.com/track/6gdDu39yYqPcaTgCwYEW8i)
 
-by Vaundy
+by Fred again.., Swedish House Mafia, Future
